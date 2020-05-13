@@ -1,9 +1,9 @@
 
 
-Experience
+Pengalaman
 ############
 
-Job Title at Company
+Pengalaman di Syarikat
 **********************
 
 *April 2011 - Present*
